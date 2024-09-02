@@ -5,7 +5,7 @@
 Контакты (по всем вопросам):
 
 * telegram: [@sergpsv](https://t.me/sergpsv)
-* e-mail: `polsv.08@uni-dubna.ru`
+* e-mail: `poluyan@uni-dubna.ru`
 
 [Книги](https://pastebin.com/N1w3isRD)
 
