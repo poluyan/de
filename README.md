@@ -7,6 +7,8 @@
 * telegram: [@sergpsv](https://t.me/sergpsv)
 * e-mail: `poluyan@uni-dubna.ru`
 
+[Ссылка на Google Meet](https://meet.google.com/sfm-wnsz-per)
+
 [Книги](https://pastebin.com/N1w3isRD)
 
 ## Результаты
